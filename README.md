@@ -1,3 +1,3 @@
 ### hi there 
-gameplays123
-eu sou lucas ferreira tenho 15 anos e sou estudantes
+eu sou Lucas Naor Ferreira Pena
+ Tenho 15 anos e sou estudantes
